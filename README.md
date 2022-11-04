@@ -5,4 +5,4 @@ I have always been interest in science and technology, even more when they were 
 🏞️ I have a lot experience in nature and environmental issues, I hope someday I can work with the two things together. 
 
 🦇 Bat specialist <br> 
-⚡ I'm open to work 
+🚀 I'm open to work 
